@@ -5,6 +5,7 @@
 Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovníkům v terénu. Než se dodávky obnoví, budeme šít roušky, shromažďovat je v divadle Husa na provázku. Pak je vyvaříme, zabalíme a rozdáme tam, kde budou třeba.
 
 **Aktuálně:** Chybí šňůrky! Máte? Doneste je prosím do divadla Husa na provázku!
+
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
 
 ## Jak má rouška vypadat?
