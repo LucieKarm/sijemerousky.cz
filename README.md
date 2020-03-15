@@ -1,8 +1,10 @@
-# Nadpis
+# Šijeme roušky
 
-## Mensi nadpis
+## v Brně a okolí
 
-Nejaka reference na odkaz \[[1](http://example.com/)\]. Nebo primo [odkaz](http://example.com/).
+Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovníkům v terénu. Než se dodávky obnoví, budeme šít roušky, shromažďovat je v divadle Husa na provázku. Pak je vyvaříme, zabalíme a rozdáme tam, kde budou třeba.
+
+Aktuálně: Chybí šňůrky! Máte? Doneste je prosím do divadla Husa na provázku!
 
 ## Dalsi nadpis
 
@@ -10,6 +12,7 @@ Obrazek:
 
 ![Rouska](/images/rouska.png "Rouska")
 
+Nejaka reference na odkaz \[[1](http://example.com/)\]. Nebo primo [odkaz](http://example.com/).
 
 Cara:
 
