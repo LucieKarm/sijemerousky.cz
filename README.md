@@ -30,5 +30,5 @@ V Huse na provázku budou připravené stroje i materiál a bude probíhat šic�
 
 ## Chci pomoct, ale nebudu šít
 - Vytiskněte [tento leták](https://docs.google.com/document/d/1nZylJwBx33-MKQGtiI23k3sIcES2307ylxrMcGymysM/edit?usp=sharing) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
-- Další dobrovolníci budou potřeba na distribuci připravených roušek, info sem brzy přibude.
+- Pokud se vyhlásí karanténa, bude potřeba ušité roušky svážet auty. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
 
