@@ -4,9 +4,20 @@
 
 Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovníkům v terénu. Než se dodávky obnoví, budeme šít roušky, shromažďovat je v divadle Husa na provázku. Pak je vyvaříme, zabalíme a rozdáme tam, kde budou třeba.
 
-Aktuálně: Chybí šňůrky! Máte? Doneste je prosím do divadla Husa na provázku!
+**Aktuálně:** Chybí šňůrky! Máte? Doneste je prosím do divadla Husa na provázku!
+**Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
 
-## Dalsi nadpis
+## Jak má rouška vypadat?
+- Látky i šňůrky musí být ze 100% bavlny, aby šla vyvařit, vydesinfikovat a znovu použít.
+- Šít můžete například podle tohoto návodu.
+- Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
+
+## Mám šicí stroj i materiál
+## Mám ušité roušky, nemám jak je odnést
+## Mám šicí stroj, nemám materiál
+## Mám látky a šňůrky a chci je poslat dál
+## Nemám stroj, nemám materiál, umím šít
+## Chci pomoct, ale nebudu šít
 
 Obrazek:
 
