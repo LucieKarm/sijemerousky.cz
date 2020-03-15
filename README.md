@@ -29,6 +29,6 @@ Co máte, doneste na vrátnici do divadla. Látky doneste vyprané a nezmuchlan�
 V Huse na provázku budou připravené stroje i materiál a bude probíhat šicí dílna. Více info brzy tady.
 
 ## Chci pomoct, ale nebudu šít
-- Vytiskněte [tento leták](https://docs.google.com/document/d/1nZylJwBx33-MKQGtiI23k3sIcES2307ylxrMcGymysM/edit?usp=sharing) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
+- Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89515872_198729808053082_1653226344948957184_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=acs2_rmJhAsAX_WQVO2&_nc_ht=scontent-prg1-1.xx&oh=23e587d1b13b43ab5650cde0e0211826&oe=5E95A614) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
 - Pokud se vyhlásí karanténa, bude potřeba ušité roušky svážet auty. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
 
