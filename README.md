@@ -6,7 +6,7 @@ Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovn�
 
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
 
-**Aktuálně:** Od úterý bude na pokladně Divadla Husa na provázku fungovat infolinka 542 123 425, každý den od 8 do 18 hodin.
+**Aktuálně:** Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
 
 
 Dnes od 13 hodin otevíráme šicí dílnu v Podané kavárně na Hileho 5 v Brně. Můžete si přijít pro materiál nebo se stavit a chvíli šít. Na místě budou lidé, co vás zaučí, pokud nemáte zkušenosti. Ke kavárně je možné dojet autem i bez povolení.
