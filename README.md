@@ -6,6 +6,8 @@ Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovn�
 
 **Aktuálně:** Chybí šňůrky! Máte? Doneste je prosím do divadla Husa na provázku!
 
+**Jak zacházet s rouškou?**(https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966)
+
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
 
 ## Jak má rouška vypadat?
@@ -29,6 +31,6 @@ Co máte, doneste na vrátnici do divadla. Látky doneste vyprané a nezmuchlan�
 V Huse na provázku budou připravené stroje i materiál a bude probíhat šicí dílna. Více info brzy tady.
 
 ## Chci pomoct, ale nebudu šít
-- Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89515872_198729808053082_1653226344948957184_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=acs2_rmJhAsAX_WQVO2&_nc_ht=scontent-prg1-1.xx&oh=23e587d1b13b43ab5650cde0e0211826&oe=5E95A614) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
+- Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/90369550_209835203419075_7368684134853509120_n.jpg?_nc_cat=100&_nc_sid=b96e70&_nc_ohc=1E1UI7kKN1wAX8WkdLc&_nc_ht=scontent-prg1-1.xx&oh=95fcaad9d5fd92fe20be5cf0a80b7b67&oe=5E93241D) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
 - Pokud se vyhlásí karanténa, bude potřeba ušité roušky svážet auty. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
 
