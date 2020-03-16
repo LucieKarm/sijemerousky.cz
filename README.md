@@ -4,7 +4,7 @@
 
 Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovníkům v terénu. Než se dodávky obnoví, budeme šít roušky, shromažďovat je v divadle Husa na provázku. Pak je vyvaříme, zabalíme a rozdáme tam, kde budou třeba.
 
-**Aktuálně:** Chybí šňůrky! Máte? Doneste je prosím do divadla Husa na provázku!
+**Aktuálně:** Dnes od 13 hodin otevíráme šicí dílnu v Podané kavárně na Hileho 5 v Brně. Můžete si přijít pro materiál nebo se stavit a chvíli šít. Na místě budou lidé, co vás zaučí, pokud nemáte zkušenosti.
 
 [Jak zacházet s rouškou?](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966)
 
@@ -16,7 +16,7 @@ Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovn�
 - Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
 
 ## Mám šicí stroj i materiál
-Hotové roušky **zaneste na vrátnici divadla Husa na provázku** v Brně na Zelném trhu 9 kdykoli od 8 do 18 hodin. Na místě budou nachystané krabice, kam roušky můžete vložit. Z divadla se budou roušky vozit na dezinfekci a zabalení. Roušky noste v roušce, abyste případně sami nenakazili ostatní!
+Hotové roušky **zaneste na vrátnici divadla Husa na provázku** na Zelném trhu 9 kdykoli od 8 do 18 hodin nebo do **Podané kavárny** na Hileho 5. Na místě budou nachystané krabice, kam roušky můžete vložit. Ze sběrných míst se budou roušky vozit na dezinfekci a zabalení. Roušky noste v roušce, abyste případně sami nenakazili ostatní!
 
 ## Mám ušité roušky, nemám jak je odnést
 Zkontaktujte kohokoli z webu [pomocdodomu.cz](https://www.pomocdodomu.cz/), určitě rád pomůže.
@@ -28,7 +28,7 @@ Dojděte si pro něj do divadla Husa na provázku.
 Co máte, doneste na vrátnici do divadla. Látky doneste vyprané a nezmuchlané.
 
 ## Nemám stroj, nemám materiál, umím šít
-V Huse na provázku budou připravené stroje i materiál a bude probíhat šicí dílna. Více info brzy tady.
+V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou připravené stroje, materiál i lidé, kteří vás zaučí. Stavte se a chvíli šijte!
 
 ## Chci pomoct, ale nebudu šít
 - Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/90369550_209835203419075_7368684134853509120_n.jpg?_nc_cat=100&_nc_sid=b96e70&_nc_ohc=1E1UI7kKN1wAX8WkdLc&_nc_ht=scontent-prg1-1.xx&oh=95fcaad9d5fd92fe20be5cf0a80b7b67&oe=5E93241D) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
