@@ -25,7 +25,7 @@ Dnes od 13 hodin otevíráme šicí dílnu v Podané kavárně na Hileho 5 v Brn
 ## Mám ušité roušky, kam s nimi dál?
 Hotové roušky **zaneste na vrátnici divadla Husa na provázku** na Zelném trhu 9 kdykoli od 8 do 18 hodin nebo do **Podané kavárny** na Hileho 5 (je možné tam dojet autem bez povolení). Na místě budou nachystané krabice, kam roušky můžete vložit. Ze sběrných míst se budou roušky vozit na dezinfekci a zabalení. **Roušky noste v roušce**, abyste případně sami nenakazili ostatní!
 
-## Pomoze nám v šicí dílně!
+## Pomozte nám v šicí dílně!
 V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou každý den od 8 do 18 hodin jsou připravené stroje, materiál i lidé, kteří vás zaučí. Pracuje se ve 4 směnách po 3 hodinách, na směně je celkem potřeba 20 dobrovolníků. [Přijďte nám pomoct!](https://www.ced-brno.cz/rousky) 
 
 ## Mám látky a šňůrky a chci je poslat dál
@@ -37,10 +37,7 @@ Zkontaktujte kohokoli z webu [pomocdodomu.cz](https://www.pomocdodomu.cz/), urč
 ## Mám šicí stroj, nemám materiál
 Dojděte si pro něj do divadla Husa na provázku nebo do Podané kavárny.
 
-
-
-
 ## Chci pomoct, ale nebudu šít
 - Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/90369550_209835203419075_7368684134853509120_n.jpg?_nc_cat=100&_nc_sid=b96e70&_nc_ohc=1E1UI7kKN1wAX8WkdLc&_nc_ht=scontent-prg1-1.xx&oh=95fcaad9d5fd92fe20be5cf0a80b7b67&oe=5E93241D) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
-- Pokud se vyhlásí karanténa, bude potřeba ušité roušky svážet auty. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
+- Ušité roušky potřebujeme svážet auty do Husy na provázku. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
 
