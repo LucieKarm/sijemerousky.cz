@@ -4,7 +4,7 @@
 
 Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovníkům v terénu. Než se dodávky obnoví, budeme šít roušky, shromažďovat je v divadle Husa na provázku. Pak je vyvaříme, zabalíme a rozdáme tam, kde budou třeba.
 
-**Aktuálně:** Dnes od 13 hodin otevíráme šicí dílnu v Podané kavárně na Hileho 5 v Brně. Můžete si přijít pro materiál nebo se stavit a chvíli šít. Na místě budou lidé, co vás zaučí, pokud nemáte zkušenosti.
+**Aktuálně:** Dnes od 13 hodin otevíráme šicí dílnu v Podané kavárně na Hileho 5 v Brně. Můžete si přijít pro materiál nebo se stavit a chvíli šít. Na místě budou lidé, co vás zaučí, pokud nemáte zkušenosti. Ke kavárně je možné dojet autem i bez povolení.
 
 [Jak zacházet s rouškou?](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966)
 
@@ -22,13 +22,13 @@ Hotové roušky **zaneste na vrátnici divadla Husa na provázku** na Zelném tr
 Zkontaktujte kohokoli z webu [pomocdodomu.cz](https://www.pomocdodomu.cz/), určitě rád pomůže.
 
 ## Mám šicí stroj, nemám materiál
-Dojděte si pro něj do divadla Husa na provázku.
+Dojděte si pro něj do divadla Husa na provázku nebo do Podané kavárny.
 
 ## Mám látky a šňůrky a chci je poslat dál
 Co máte, doneste na vrátnici do divadla. Látky doneste vyprané a nezmuchlané.
 
 ## Nemám stroj, nemám materiál, umím šít
-V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou připravené stroje, materiál i lidé, kteří vás zaučí. Stavte se a chvíli šijte!
+V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 (je možné tam dojet autem bez povolení) jsou připravené stroje, materiál i lidé, kteří vás zaučí. Stavte se a chvíli šijte!
 
 ## Chci pomoct, ale nebudu šít
 - Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/90369550_209835203419075_7368684134853509120_n.jpg?_nc_cat=100&_nc_sid=b96e70&_nc_ohc=1E1UI7kKN1wAX8WkdLc&_nc_ht=scontent-prg1-1.xx&oh=95fcaad9d5fd92fe20be5cf0a80b7b67&oe=5E93241D) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
