@@ -16,7 +16,6 @@ Dnes od 13 hodin otevíráme šicí dílnu v Podané kavárně na Hileho 5 v Brn
 
 [Jak zacházet s rouškou?](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966)
 
-
 ## Jak má rouška vypadat?
 - Látky i šňůrky musí být ze **100% bavlny**, aby šla vyvařit, vydezinfikovat a znovu použít.
 - Šít můžete například podle [tohoto návodu](https://www.caramilla.cz/site-rousky-ustenky/?fbclid=IwAR3Q53zkvkbt0IC3SnIM9dPYFqWwH2wzQT1QxwLgyl9zE6D7L_C_8wH3uEs).
@@ -32,7 +31,7 @@ V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou ka
 Co máte, doneste na vrátnici do divadla. Látky doneste vyprané a nezmuchlané.
 
 ## Mám ušité roušky, nemám jak je odnést
-Zkontaktujte kohokoli z webu [pomocdodomu.cz](https://www.pomocdodomu.cz/), určitě rád pomůže.
+Napište se nám [do tabulky](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), roušky vyzvedneme.
 
 ## Mám šicí stroj, nemám materiál
 Dojděte si pro něj do divadla Husa na provázku nebo do Podané kavárny.
