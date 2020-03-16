@@ -6,7 +6,7 @@ Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovn�
 
 **Aktuálně:** Chybí šňůrky! Máte? Doneste je prosím do divadla Husa na provázku!
 
-**[Jak zacházet s rouškou?]**(https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966)
+[Jak zacházet s rouškou?](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966)
 
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
 
