@@ -2,9 +2,7 @@
 
 ## v Brně a okolí
 
-Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovníkům v terénu. Než se dodávky obnoví, budeme šít roušky, shromažďovat je, dezinfikovat, balit a rozdávat tam, kde budou třeba. Pokud jste terénní pracovníci, pracujete v sociálních službách nebo zdravotnictví a potřebujete roušky, ozvěte se nám.
-
-**Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
+Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovníkům v terénu. Než se dodávky obnoví, budeme šít roušky, shromažďovat je, dezinfikovat, balit a rozdávat tam, kde budou třeba. Pokud jste terénní pracovníci, pracujete v sociálních službách nebo zdravotnictví a potřebujete roušky, [ozvěte se nám](https://docs.google.com/forms/d/e/1FAIpQLScT2zbyMPZp4LBdd6X_dBT3eAm15iF6gO4dS5KwYaPchdvWbA/viewform?usp=sf_link).
 
 **Aktuálně:** Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
 
@@ -33,4 +31,6 @@ Pro roušky si přijedeme, abyste nemuseli chodit ven. [Dejte nám vědět](http
 ## Chci pomoct, ale nebudu šít
 - Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/90369550_209835203419075_7368684134853509120_n.jpg?_nc_cat=100&_nc_sid=b96e70&_nc_ohc=1E1UI7kKN1wAX8WkdLc&_nc_ht=scontent-prg1-1.xx&oh=95fcaad9d5fd92fe20be5cf0a80b7b67&oe=5E93241D) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
 - Ušité roušky potřebujeme svážíme auty k dezinfekci, do domácností rozvážíme materiál k šití. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
+
+**Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
 
