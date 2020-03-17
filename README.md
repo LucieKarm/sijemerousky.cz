@@ -8,8 +8,7 @@ Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovn�
 
 **Aktuálně:** Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
 
-
-Dnes od 13 hodin otevíráme šicí dílnu v Podané kavárně na Hileho 5 v Brně. Můžete si přijít pro materiál nebo se stavit a chvíli šít. Na místě budou lidé, co vás zaučí, pokud nemáte zkušenosti. Ke kavárně je možné dojet autem i bez povolení.
+**Aktuálně:** Chcete šít, ale nemáte materiál? Přivezeme vám ho, [dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSckgfW2p4bUloaJfAPYlQqfSwb54KLAmmqVArxD4DqrXuOOIg/viewform?usp=sf_link).
 
 [Jak zacházet s rouškou?](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966)
 
@@ -19,7 +18,7 @@ Dnes od 13 hodin otevíráme šicí dílnu v Podané kavárně na Hileho 5 v Brn
 - Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
 
 ## Mám ušité roušky, kam s nimi dál?
-Hotové roušky **zaneste na vrátnici divadla Husa na provázku** na Zelném trhu 9 kdykoli od 8 do 18 hodin nebo do **Podané kavárny** na Hileho 5 (je možné tam dojet autem bez povolení). Na místě budou nachystané krabice, kam roušky můžete vložit. Ze sběrných míst se budou roušky vozit na dezinfekci a zabalení. **Roušky noste v roušce**, abyste případně sami nenakazili ostatní!
+Pro roušky si přijedeme, abyste nemuseli chodit ven. [Dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSckgfW2p4bUloaJfAPYlQqfSwb54KLAmmqVArxD4DqrXuOOIg/viewform?usp=sf_link), a ozveme se vám. 
 
 ## Pomozte nám v šicí dílně!
 V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou každý den od 8 do 18 hodin jsou připravené stroje, materiál i lidé, kteří vás zaučí. Pracuje se ve 4 směnách po 3 hodinách, na směně je celkem potřeba 20 dobrovolníků. [Přijďte nám pomoct!](https://www.ced-brno.cz/rousky) 
@@ -27,11 +26,8 @@ V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou ka
 ## Mám látky a šňůrky a chci je poslat dál
 Co máte, doneste na vrátnici do divadla. Látky doneste vyprané a nezmuchlané.
 
-## Mám ušité roušky, nemám jak je odnést
-Napište se nám [do tabulky](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), roušky vyzvedneme.
-
-## Mám šicí stroj, nemám materiál
-Dojděte si pro něj do divadla Husa na provázku nebo do Podané kavárny.
+## Chci šít doma, nemám materiál
+[Napište nám](https://docs.google.com/forms/d/e/1FAIpQLSckgfW2p4bUloaJfAPYlQqfSwb54KLAmmqVArxD4DqrXuOOIg/viewform?usp=sf_link), materiál vám dovezeme. 
 
 ## Chci pomoct, ale nebudu šít
 - Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/90369550_209835203419075_7368684134853509120_n.jpg?_nc_cat=100&_nc_sid=b96e70&_nc_ohc=1E1UI7kKN1wAX8WkdLc&_nc_ht=scontent-prg1-1.xx&oh=95fcaad9d5fd92fe20be5cf0a80b7b67&oe=5E93241D) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
