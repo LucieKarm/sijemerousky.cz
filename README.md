@@ -13,7 +13,7 @@ Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovn�
 
 ## Jak má rouška vypadat?
 - Látky i šňůrky musí být ze **100% bavlny**, aby šla vyvařit, vydezinfikovat a znovu použít.
-- Šít můžete například podle [tohoto návodu](https://www.caramilla.cz/site-rousky-ustenky/?fbclid=IwAR3Q53zkvkbt0IC3SnIM9dPYFqWwH2wzQT1QxwLgyl9zE6D7L_C_8wH3uEs).
+- Šít můžete například podle [tohoto návodu](https://scontent-prg1-1.xx.fbcdn.net/v/t1.0-9/89338814_217960132915445_6483116063725715456_n.jpg?_nc_cat=100&_nc_sid=2d5d41&_nc_ohc=vf-v5EtQTz4AX_k4fP8&_nc_ht=scontent-prg1-1.xx&oh=cfcd929189382f2a1b607b106683d07d&oe=5E95E462).
 - Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
 
 ## Pomozte nám v šicí dílně!
