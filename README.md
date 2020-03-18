@@ -2,7 +2,7 @@
 
 ## v Brně a okolí
 
-Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovníkům v terénu. Než se dodávky obnoví, budeme šít roušky, shromažďovat je, dezinfikovat, balit a rozdávat tam, kde budou třeba. Pokud jste terénní pracovníci, pracujete v sociálních službách nebo zdravotnictví a potřebujete roušky, [ozvěte se nám](https://docs.google.com/forms/d/e/1FAIpQLScT2zbyMPZp4LBdd6X_dBT3eAm15iF6gO4dS5KwYaPchdvWbA/viewform?usp=sf_link).
+Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají sebe ani je jak chránit. Proto šijeme roušky, shromažďujeme je, dezinfikujeme, balíme a rozdáváme tam, kde jsou třeba. Pokud jste terénní pracovníci, pracujete v sociálních službách nebo zdravotnictví a potřebujete roušky, [ozvěte se nám](https://docs.google.com/forms/d/e/1FAIpQLScT2zbyMPZp4LBdd6X_dBT3eAm15iF6gO4dS5KwYaPchdvWbA/viewform?usp=sf_link).
 
 **Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
 
