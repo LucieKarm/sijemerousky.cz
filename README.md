@@ -4,6 +4,8 @@
 
 Chybí jednorázové roušky v pečovatelských domech nebo sociálním pracovníkům v terénu. Než se dodávky obnoví, budeme šít roušky, shromažďovat je, dezinfikovat, balit a rozdávat tam, kde budou třeba. Pokud jste terénní pracovníci, pracujete v sociálních službách nebo zdravotnictví a potřebujete roušky, [ozvěte se nám](https://docs.google.com/forms/d/e/1FAIpQLScT2zbyMPZp4LBdd6X_dBT3eAm15iF6gO4dS5KwYaPchdvWbA/viewform?usp=sf_link).
 
+**Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
+
 **Aktuálně:** Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
 
 **Aktuálně:** Chcete šít, ale nemáte materiál? Přivezeme vám ho, [dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link).
