@@ -1,3 +1,5 @@
+[English version](https://en.sijemerousky.cz/)
+
 # Šijeme roušky pro nemocnice, sociální pracovníky a pečovatele
 
 ## v Brně a okolí
