@@ -22,7 +22,7 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou každý den od 8 do 18 hodin jsou připravené stroje, materiál i lidé, kteří vás zaučí. Pracuje se ve 4 směnách po 3 hodinách, na směně je celkem potřeba 20 dobrovolníků. [Přijďte nám pomoct!](https://www.ced-brno.cz/rousky) 
 
 ## Mám látky a šňůrky a chci je poslat dál
-Co máte, doneste na vrátnici do divadla. Látky doneste vyprané a nezmuchlané.
+[Zaregistrujte se](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform) prosím a my k vám pro látky pošleme řidiče. **Není možné vyměňovat látky za ušité roušky.** Děkujeme za pochopení.
 
 ## Chci šít doma, přivezte mi materiál
 [Napište nám](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), materiál vám dovezeme. Z každých 5 ušitých roušek je jedna vaše.
