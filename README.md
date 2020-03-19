@@ -8,7 +8,9 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 
 **Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
 
-**Aktuálně:** Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
+Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
+
+**Aktuálně:** Od pátku 20.3. (včetně) přesouváme některá šicí místa z Husy na Provázku do jiných prostor. Prosíme dobrovolníky na šití, aby se podívali do doodle tabulky.
 
 **Aktuálně:** Chcete šít, ale nemáte materiál? Přivezeme vám ho, [dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link).
 
