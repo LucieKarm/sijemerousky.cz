@@ -40,7 +40,7 @@ V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou ka
 
 
 ## Chci pomoct, ale nebudu šít
-- Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/90369550_209835203419075_7368684134853509120_n.jpg?_nc_cat=100&_nc_sid=b96e70&_nc_ohc=1E1UI7kKN1wAX8WkdLc&_nc_ht=scontent-prg1-1.xx&oh=95fcaad9d5fd92fe20be5cf0a80b7b67&oe=5E93241D) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
+- Vytiskněte tento [návod](https://drive.google.com/open?id=1iOUj7bv1X3ZxVeihBezKZF2yj1exEao4) nebo tento [návod na šití z trika](https://drive.google.com/open?id=1uB0SYIViM08f6p8D6PbdTfhpMiwPn1HZ) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
 - Ušité roušky potřebujeme svážíme auty k dezinfekci, do domácností rozvážíme materiál k šití. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
 
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
