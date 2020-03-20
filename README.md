@@ -26,14 +26,17 @@ Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
 ## Pomozte nám v šicí dílně!
 V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou každý den od 8 do 18 hodin jsou připravené stroje, materiál i lidé, kteří vás zaučí. Pracuje se ve 4 směnách po 3 hodinách, na směně je celkem potřeba 20 dobrovolníků. [Přijďte nám pomoct!](https://www.ced-brno.cz/rousky) 
 
-## Mám látky a šňůrky a chci je poslat dál
-[Zaregistrujte se](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform) prosím a my k vám pro látky pošleme řidiče. **Není možné vyměňovat látky za ušité roušky.** Děkujeme za pochopení.
-
 ## Chci šít doma, přivezte mi materiál
 [Napište nám](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), materiál vám dovezeme. Z každých 5 ušitých roušek je jedna vaše.
 
 ## Mám ušité roušky, kam s nimi dál?
 Pro roušky si přijedeme, abyste nemuseli chodit ven. [Dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), a ozveme se vám.
+**Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
+
+## Mám látky a šňůrky a chci je poslat dál
+[Zaregistrujte se](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform) prosím a my k vám pro látky pošleme řidiče. **Není možné vyměňovat látky za ušité roušky.** Děkujeme za pochopení.
+**Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
+
 
 ## Chci pomoct, ale nebudu šít
 - Vytiskněte [tento leták](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/90369550_209835203419075_7368684134853509120_n.jpg?_nc_cat=100&_nc_sid=b96e70&_nc_ohc=1E1UI7kKN1wAX8WkdLc&_nc_ht=scontent-prg1-1.xx&oh=95fcaad9d5fd92fe20be5cf0a80b7b67&oe=5E93241D) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
