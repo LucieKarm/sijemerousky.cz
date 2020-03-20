@@ -30,12 +30,13 @@ V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou ka
 [Napište nám](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), materiál vám dovezeme. Z každých 5 ušitých roušek je jedna vaše.
 
 ## Mám ušité roušky, kam s nimi dál?
-Pro roušky si přijedeme, abyste nemuseli chodit ven. [Dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), a ozveme se vám.
-**Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
+- Pro roušky si přijedeme, abyste nemuseli chodit ven. [Dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), a ozveme se vám.
+- **Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
 
 ## Mám látky a šňůrky a chci je poslat dál
-[Zaregistrujte se](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform) prosím a my k vám pro látky pošleme řidiče. **Není možné vyměňovat látky za ušité roušky.** Děkujeme za pochopení.
-**Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
+- [Zaregistrujte se](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform) prosím a my k vám pro látky pošleme řidiče. 
+- **Není možné vyměňovat látky za ušité roušky.** Děkujeme za pochopení.
+- **Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
 
 
 ## Chci pomoct, ale nebudu šít
