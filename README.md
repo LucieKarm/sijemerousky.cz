@@ -8,8 +8,6 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 
 **Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
 
-Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
-
 **Aktuálně:** Od pátku 20.3. (včetně) přesouváme některá šicí místa z Husy na Provázku do jiných prostor. Prosíme dobrovolníky na šití, aby se podívali do doodle tabulky.
 
 **Aktuálně:** Chcete šít, ale nemáte materiál? Přivezeme vám ho, [dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link).
@@ -20,7 +18,7 @@ Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
 
 ### Jak má rouška vypadat?
 - Látky i šňůrky musí být ze **100% bavlny**, aby šla vyvařit, vydezinfikovat a znovu použít.
-- Šít můžete například podle [tohoto návodu](https://scontent-prg1-1.xx.fbcdn.net/v/t1.0-9/89338814_217960132915445_6483116063725715456_n.jpg?_nc_cat=100&_nc_sid=2d5d41&_nc_ohc=vf-v5EtQTz4AX_k4fP8&_nc_ht=scontent-prg1-1.xx&oh=cfcd929189382f2a1b607b106683d07d&oe=5E95E462).
+- Šít můžete například podle [tohoto návodu](https://drive.google.com/open?id=1xcGW-453TlJTP-0EfNbN9xt7ioq1ItUC).
 - Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
 
 ## Pomozte nám v šicí dílně!
@@ -40,8 +38,11 @@ V Huse na provázku na Zelném trhu 9 a v Podané kavárně na Hilleho 5 jsou ka
 
 
 ## Chci pomoct, ale nebudu šít
-- Vytiskněte tento [návod](https://drive.google.com/open?id=1iOUj7bv1X3ZxVeihBezKZF2yj1exEao4) nebo tento [návod na šití z trika](https://drive.google.com/open?id=1uB0SYIViM08f6p8D6PbdTfhpMiwPn1HZ) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
+- Vytiskněte tento [návod](https://drive.google.com/open?id=1xcGW-453TlJTP-0EfNbN9xt7ioq1ItUC) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
 - Ušité roušky potřebujeme svážíme auty k dezinfekci, do domácností rozvážíme materiál k šití. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
 
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
+
+Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
+
 
