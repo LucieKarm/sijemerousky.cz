@@ -8,7 +8,9 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 
 **Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
 
-**Aktuálně:** Dochází nám materiál. [Můžete nám nějaký darovat?](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform). Pošleme k vám řidiče. 
+**Aktuálně:** Dochází nám materiál. [Můžete nám nějaký darovat?](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform) Pošleme k vám řidiče. 
+
+**Aktuálně:** Je vás spousta, co pomáháte. Snažíme se vám ozvat co nejdříve, ale může to trvat i dva dny. Děkujeme za pochopení.
 
 ## Všechno o roušce
 - [Jak s ní zacházet](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966), aby byla co nejúčinnější?
