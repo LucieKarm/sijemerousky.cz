@@ -8,9 +8,7 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 
 **Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
 
-**Aktuálně:** Dochází nám materiál. [Můžete nám nějaký darovat?](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform) Pošleme k vám řidiče. 
-
-**Aktuálně:** Je vás spousta, co pomáháte. Snažíme se vám ozvat co nejdříve, ale může to trvat i dva dny. Děkujeme za pochopení.
+**Aktuálně:** Dochází nám materiál. [Můžete nám nějaký darovat?](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link) Pošleme k vám řidiče. 
 
 ## Všechno o roušce
 - [Jak s ní zacházet](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966), aby byla co nejúčinnější?
@@ -22,7 +20,7 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 - Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
 
 ## Mám látky a šňůrky a chci je poslat dál
-- [Zaregistrujte se](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform) prosím a my k vám pro látky pošleme řidiče. 
+- [Zaregistrujte se](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link) prosím a my k vám pro látky pošleme řidiče. 
 - **Není možné vyměňovat látky za ušité roušky.** Děkujeme za pochopení.
 - **Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
 
@@ -40,10 +38,10 @@ Za poslední týden vzniklo v Brně a okolí několik dobrovolnických šicích 
 Všude jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přijďte nám pomoct!](https://www.ced-brno.cz/rousky) 
 
 ## Chci šít doma, přivezte mi materiál
-[Napište nám](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), materiál vám dovezeme. Z každých 5 ušitých roušek je jedna vaše.
+[Napište nám](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link), materiál vám dovezeme. Z každých 5 ušitých roušek je jedna vaše. Je vás spousta, co pomáháte. Snažíme se vám ozvat co nejdříve, **ale může to trvat i dva dny**. Děkujeme za pochopení.
 
 ## Mám ušité roušky, kam s nimi dál?
-- Pro roušky si přijedeme, abyste nemuseli chodit ven. [Dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), a ozveme se vám.
+- Pro roušky si přijedeme, abyste nemuseli chodit ven. [Dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link), a ozveme se vám.
 - **Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
 
 ## Chci pomoct, ale nebudu šít
