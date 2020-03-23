@@ -18,7 +18,7 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 
 ### Jak má rouška vypadat?
 - Látky i šňůrky musí být ze **100% bavlny**, aby šla vyvařit, vydezinfikovat a znovu použít.
-- Šít můžete například podle [tohoto návodu](https://drive.google.com/open?id=1xcGW-453TlJTP-0EfNbN9xt7ioq1ItUC).
+- Šít můžete například podle [tohoto návodu](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing).
 - Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
 
 ## Pomozte nám v šicí dílně!
@@ -38,7 +38,7 @@ V Huse na provázku na Zelném trhu 9, v Podané kavárně na Hilleho 5, v café
 
 
 ## Chci pomoct, ale nebudu šít
-- Vytiskněte tento [návod](https://drive.google.com/open?id=1xcGW-453TlJTP-0EfNbN9xt7ioq1ItUC) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
+- Vytiskněte tento [návod](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
 - Ušité roušky potřebujeme svážíme auty k dezinfekci, do domácností rozvážíme materiál k šití. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
 - Přispějte nám na transparentní účet 2701786666/2010, do zprávy pro příjemce uveďte: sijemerousky
 
