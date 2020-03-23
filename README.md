@@ -25,7 +25,17 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 - **Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
 
 ## Pomozte nám v šicí dílně!
-V Huse na provázku na Zelném trhu 9, v Podané kavárně na Hilleho 5, v café Industra na Masné 9 a v galerii Off Format na Gorkého 41 jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přijďte nám pomoct!](https://www.ced-brno.cz/rousky) 
+Za poslední týden vzniklo v Brně a okolí několik dobrovolnických šicích dílen, kam pořízený materiál na výrobu roušek následně poputuje. 
+- Aktuálně je můžete najít na adresách:
+- Husa na provázku, Zelný trh 9
+- Podaná kavárna, Hilleho 5
+- Industra, Mastná 9
+- IQ Roma, Bratislavská 7
+- Divadlo Polárka, Tučkova 34
+- Brno šije, Veveří 39 
+- Galerie OFF FORMAT, Gorkého 41
+
+Všude jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přijďte nám pomoct!](https://www.ced-brno.cz/rousky) 
 
 ## Chci šít doma, přivezte mi materiál
 [Napište nám](https://docs.google.com/forms/d/e/1FAIpQLSdjZqHkglV2Gdva7ELOEVB6H6uPRfy8BAUKaHk2O_XiOAZpKw/viewform?usp=sf_link), materiál vám dovezeme. Z každých 5 ušitých roušek je jedna vaše.
