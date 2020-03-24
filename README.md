@@ -43,6 +43,7 @@ Všude jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přij
 ## Mám ušité roušky, kam s nimi dál?
 - Pro roušky si přijedeme, abyste nemuseli chodit ven. [Dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link), a ozveme se vám.
 - **Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
+- Pokud nejste z Brna, můžete roušky [poslat skrze Českou poštu zdarma](https://www.ceskaposta.cz/-/ceska-posta-zdarma-prepravuje-rousky).
 
 ## Chci pomoct, ale nebudu šít
 - Vytiskněte tento [návod](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
