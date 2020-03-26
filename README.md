@@ -10,6 +10,8 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 
 **Aktuálně:** Dochází nám materiál. [Můžete nám nějaký darovat?](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link) Pošleme k vám řidiče. 
 
+**Aktuálně:** Aktuálně rozvážíme roušky i materiál jen po Brně. Pokud nám chcete poslat roušky, dejte je prosím do průhledného obalu a Česká pošta nám je doručí [zdarma](https://www.ceskaposta.cz/-/ceska-posta-zdarma-prepravuje-rousky). 
+
 ## Všechno o roušce
 - [Jak s ní zacházet](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966), aby byla co nejúčinnější?
 - Pozor, nedávejte roušky "sterilizovat" do mikrovlnky, mohou začít hořet!
@@ -49,6 +51,7 @@ Všude jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přij
 - Vytiskněte tento [návod](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
 - Ušité roušky potřebujeme svážíme auty k dezinfekci, do domácností rozvážíme materiál k šití. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
 - Přispějte nám na transparentní účet 2701786666/2010, do zprávy pro příjemce uveďte: sijemerousky
+- Pomoct nám můžete také skrz kampaň [Daruj roušku](https://www.darujme.cz/projekt/1202799?fbclid=IwAR3l5Kg2ZZ-FWkN_-YkxEJphsGRObclgm0yS6nTmMji0dYivKiHGY0TvTQU#informace). Vybrané peníze používáme na nákup materiálu.
 
 
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
