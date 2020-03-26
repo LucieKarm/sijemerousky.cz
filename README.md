@@ -40,10 +40,9 @@ Všude jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přij
 - Pokud nejste z Brna, můžete roušky [poslat skrze Českou poštu zdarma](https://www.ceskaposta.cz/-/ceska-posta-zdarma-prepravuje-rousky).
 
 ## Chci pomoct, ale nebudu šít
-- Vytiskněte tento [návod](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
-- Ušité roušky potřebujeme svážíme auty k dezinfekci, do domácností rozvážíme materiál k šití. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
-- Přispějte nám na transparentní účet 2701786666/2010, do zprávy pro příjemce uveďte: sijemerousky
-- Pomoct nám můžete také skrz kampaň [Daruj roušku](https://www.darujme.cz/projekt/1202799?fbclid=IwAR3l5Kg2ZZ-FWkN_-YkxEJphsGRObclgm0yS6nTmMji0dYivKiHGY0TvTQU#informace). Vybrané peníze používáme na nákup materiálu.
+- **Šiřte informace:** Vytiskněte tento [návod](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing) a vyvěste jich pár po ulicích, ať se informace dostanou k co nejvíce lidem.
+- **Pomozte nám s rozvozem:** Ušité roušky potřebujeme svážíme auty k dezinfekci, do domácností rozvážíme materiál k šití. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
+- **Pošlete peníze na nákup materiálu:** Přispějte nám na transparentní účet 2701786666/2010, do zprávy pro příjemce uveďte: sijemerousky, nebo skrz kampaň [Daruj roušku](https://www.darujme.cz/projekt/1202799?fbclid=IwAR3l5Kg2ZZ-FWkN_-YkxEJphsGRObclgm0yS6nTmMji0dYivKiHGY0TvTQU#informace).
 
 ## Všechno o roušce
 - Rozhodně [má smysl nosit vlastnoručně vyrobenou roušku](https://www.okoronaviru.cz/nosit-vlastnorucne-usitou-rousku-ma-smysl-nepodcente-jeji-material-a-sterilizaci/), alespoň částečně tak chráníte své okolí.
