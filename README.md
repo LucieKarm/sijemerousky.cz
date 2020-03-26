@@ -18,8 +18,7 @@ Pokud nejste z Brna, primárně prosím šijte pro své sousedy a sousedky, pro 
 - **Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
 
 ## Pomozte nám v šicí dílně!
-Za poslední týden vzniklo v Brně a okolí několik dobrovolnických šicích dílen, kam pořízený materiál na výrobu roušek následně poputuje. 
-- Aktuálně je můžete najít na adresách:
+Za poslední týden vzniklo v Brně a okolí několik dobrovolnických šicích dílen, kam pořízený materiál na výrobu roušek následně poputuje. Aktuálně je můžete najít na adresách:
 - Husa na provázku, Zelný trh 9
 - Podaná kavárna, Hilleho 5
 - Industra, Mastná 9
