@@ -8,20 +8,9 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 
 **Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
 
-**Aktuálně:** Dochází nám materiál. [Můžete nám nějaký darovat?](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link) Pošleme k vám řidiče. 
-
 **Aktuálně:** Aktuálně rozvážíme roušky i materiál jen po Brně. Pokud nám chcete poslat roušky, dejte je prosím do průhledného obalu a Česká pošta nám je doručí [zdarma](https://www.ceskaposta.cz/-/ceska-posta-zdarma-prepravuje-rousky). 
 
-## Všechno o roušce
-- [Jak s ní zacházet](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966), aby byla co nejúčinnější?
-- Pozor, nedávejte roušky "sterilizovat" do mikrovlnky, mohou začít hořet!
-
-### Jak má rouška vypadat?
-- Látky i šňůrky musí být ze **100% bavlny**, aby šla vyvařit, vydezinfikovat a znovu použít.
-- Šít můžete například podle [tohoto návodu](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing).
-- Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
-
-## Mám látky a šňůrky a chci je poslat dál
+## Dochází nám materiál, můžete nějaký darovat?
 - [Zaregistrujte se](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link) prosím a my k vám pro látky pošleme řidiče. 
 - **Není možné vyměňovat látky za ušité roušky.** Děkujeme za pochopení.
 - **Při předávání mějte vždy na obličeji nasazenou roušku**, buďte prosím ohleduplní vůči řidičům!
@@ -40,7 +29,8 @@ Za poslední týden vzniklo v Brně a okolí několik dobrovolnických šicích 
 Všude jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přijďte nám pomoct!](https://www.ced-brno.cz/rousky) 
 
 ## Chci šít doma, přivezte mi materiál
-[Napište nám](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link), materiál vám dovezeme. Z každých 5 ušitých roušek je jedna vaše. Je vás spousta, co pomáháte. Snažíme se vám ozvat co nejdříve, **ale může to trvat i dva dny**. Děkujeme za pochopení.
+- Pokud jste z Brna, [napište nám](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link), materiál vám dovezeme. Z každých 5 ušitých roušek je jedna vaše. 
+- Je vás spousta, co pomáháte. Snažíme se vám ozvat co nejdříve, **ale může to trvat i dva dny**. Děkujeme za pochopení.
 
 ## Mám ušité roušky, kam s nimi dál?
 - Pro roušky si přijedeme, abyste nemuseli chodit ven. [Dejte nám vědět](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link), a ozveme se vám.
@@ -52,6 +42,16 @@ Všude jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přij
 - Ušité roušky potřebujeme svážíme auty k dezinfekci, do domácností rozvážíme materiál k šití. [Dobrovolnící sem!](https://forms.gle/gsR5SUx9Ep1wG3bt7)
 - Přispějte nám na transparentní účet 2701786666/2010, do zprávy pro příjemce uveďte: sijemerousky
 - Pomoct nám můžete také skrz kampaň [Daruj roušku](https://www.darujme.cz/projekt/1202799?fbclid=IwAR3l5Kg2ZZ-FWkN_-YkxEJphsGRObclgm0yS6nTmMji0dYivKiHGY0TvTQU#informace). Vybrané peníze používáme na nákup materiálu.
+
+## Všechno o roušce
+- [Jak s ní zacházet](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966), aby byla co nejúčinnější?
+- Pozor, nedávejte roušky "sterilizovat" do mikrovlnky, mohou začít hořet!
+
+### Jak má rouška vypadat?
+- Látky i šňůrky musí být ze **100% bavlny**, aby šla vyvařit, vydezinfikovat a znovu použít.
+- Šít můžete například podle [tohoto návodu](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing).
+- Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
+
 
 
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
