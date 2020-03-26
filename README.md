@@ -8,7 +8,9 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 
 **Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
 
-**Aktuálně:** Aktuálně rozvážíme roušky i materiál jen po Brně. Pokud nám chcete poslat roušky, dejte je prosím do průhledného obalu a Česká pošta nám je doručí [zdarma](https://www.ceskaposta.cz/-/ceska-posta-zdarma-prepravuje-rousky). 
+**Aktuálně:** Aktuálně rozvážíme roušky i materiál **jen po Brně**. Pokud nám chcete poslat roušky, dejte je prosím do průhledného obalu a Česká pošta nám je doručí [zdarma](https://www.ceskaposta.cz/-/ceska-posta-zdarma-prepravuje-rousky). 
+
+Pokud nejste z Brna, primárně prosím šijte pro své sousedy a sousedky, pro vlastní obec a okolí, pro oblastní nemocnice, domovy seniorů a oblastní sociální služby. Nezapomínejte roušky vyvařit a přežehlit a zabalit, než je předáte.
 
 ## Dochází nám materiál, můžete nějaký darovat?
 - [Zaregistrujte se](https://docs.google.com/forms/d/e/1FAIpQLSdmHxPWY3-xusaqLa7ixAWq3ss5JsBEoZo0ldEgsnW3hOFj3g/viewform?usp=sf_link) prosím a my k vám pro látky pošleme řidiče. 
@@ -44,15 +46,16 @@ Všude jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přij
 - Pomoct nám můžete také skrz kampaň [Daruj roušku](https://www.darujme.cz/projekt/1202799?fbclid=IwAR3l5Kg2ZZ-FWkN_-YkxEJphsGRObclgm0yS6nTmMji0dYivKiHGY0TvTQU#informace). Vybrané peníze používáme na nákup materiálu.
 
 ## Všechno o roušce
+- Rozhodně [má smysl nosit vlastnoručně vyrobenou roušku](https://www.okoronaviru.cz/nosit-vlastnorucne-usitou-rousku-ma-smysl-nepodcente-jeji-material-a-sterilizaci/), alespoň částečně tak chráníte své okolí.
 - [Jak s ní zacházet](https://scontent-prg1-1.xx.fbcdn.net/v/t1.15752-9/89870226_237727443933011_1964651537363894272_n.jpg?_nc_cat=105&_nc_sid=b96e70&_nc_ohc=dVfo8V14Zp4AX8Dj61Y&_nc_ht=scontent-prg1-1.xx&oh=dbc6920533f1e772bf43a4f1ca86ea3f&oe=5E93B966), aby byla co nejúčinnější?
 - Pozor, nedávejte roušky "sterilizovat" do mikrovlnky, mohou začít hořet!
 
-### Jak má rouška vypadat?
+### Jak si mohu roušku ušít?
 - Látky i šňůrky musí být ze **100% bavlny**, aby šla vyvařit, vydezinfikovat a znovu použít.
 - Šít můžete například podle [tohoto návodu](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing).
 - Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
 
-
+_________________________________________________________________________________
 
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
 
