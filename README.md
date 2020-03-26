@@ -2,9 +2,9 @@
 
 # Šijeme roušky pro nemocnice, sociální pracovníky a pečovatele
 
-## v Brně a okolí
+## v Brně a okolí, denně 1000 kusů
 
-Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají sebe ani je jak chránit. Proto šijeme roušky, shromažďujeme je, dezinfikujeme, balíme a rozdáváme tam, kde jsou třeba. Pokud jste terénní pracovníci, pracujete v sociálních službách nebo zdravotnictví a potřebujete roušky, [ozvěte se nám](https://docs.google.com/forms/d/e/1FAIpQLScT2zbyMPZp4LBdd6X_dBT3eAm15iF6gO4dS5KwYaPchdvWbA/viewform?usp=sf_link).
+Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají sebe ani je jak chránit. Proto šijeme roušky, shromažďujeme je, dezinfikujeme, balíme po 25 ks a rozdáváme tam, kde jsou třeba. Pokud jste terénní pracovníci, pracujete v sociálních službách nebo zdravotnictví a potřebujete roušky, [ozvěte se nám](https://docs.google.com/forms/d/e/1FAIpQLScT2zbyMPZp4LBdd6X_dBT3eAm15iF6gO4dS5KwYaPchdvWbA/viewform?usp=sf_link).
 
 **Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
 
@@ -51,9 +51,12 @@ Všude jsou připravené stroje, materiál i lidé, kteří vás zaučí. [Přij
 - Pozor, nedávejte roušky "sterilizovat" do mikrovlnky, mohou začít hořet!
 
 ### Jak si mohu roušku ušít?
-- Látky i šňůrky musí být ze **100% bavlny**, aby šla vyvařit, vydezinfikovat a znovu použít.
+- Látky i šňůrky musí být ze **100% bavlny**, nitě mohou být polyesterové. Půjdou tak vyvařit, vydezinfikovat a znovu použít.
 - Šít můžete například podle [tohoto návodu](https://drive.google.com/file/d/1jOadZlnYxfrnmT8MQqnZtCpBY7mKhgs1/view?usp=sharing).
-- Látky není potřeba předem vysrážet, nitě mohou být i polyesterové.
+- Pokuste se sehnat materiál ze svých vlastních zdrojů, je to **časově i finančně nejvýhodnější**. Oslovte své přátele, rodinu, známé a poproste je o látky, nitě nebo zapůjčení šicího stroje. To vše by mělo proběhnout **bezkontaktně**. 
+- Látky není potřeba předem vysrážet.
+- Osvědčilo se nám také oslovit mateřské školy a ubytovací zařízení a poprosit je o vyřazená prostěradla a jiné látky. Spousta firem a organizací také disponuje zásobami triček, které se dají využít zejména na šití šňůrek na roušky. 
+
 
 _________________________________________________________________________________
 
