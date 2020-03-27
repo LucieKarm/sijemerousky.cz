@@ -21,8 +21,8 @@ Pokud nejste z Brna, primárně prosím šijte pro své sousedy a sousedky, pro 
 Za poslední týden vzniklo v Brně a okolí několik dobrovolnických šicích dílen, kam pořízený materiál na výrobu roušek následně poputuje. Aktuálně je můžete najít na adresách:
 - Husa na provázku, Zelný trh 9
 - Podaná kavárna, Hilleho 5
-- Industra, Mastná 9
-- IQ Roma, Bratislavská 7
+- Industra, Masná 9
+- IQ Roma Servis, Bratislavská 7
 - Divadlo Polárka, Tučkova 34
 - Brno šije, Veveří 39 
 - Galerie OFF FORMAT, Gorkého 41
