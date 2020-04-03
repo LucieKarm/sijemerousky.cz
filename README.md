@@ -8,7 +8,7 @@ Jednorázové roušky nejsou a ti, kdo se starají o ohrožené lidi, nemají se
 
 **Není v našich silách šít pro jednotlivce, přednost mají organizace, které pečují o ohrožené lidi. Děkujeme za pochopení.**
 
-**Aktuálně:** Aktuálně rozvážíme roušky i materiál **jen po Brně**. Pokud nám chcete poslat roušky, dejte je prosím do průhledného obalu a Česká pošta nám je doručí [zdarma](https://www.ceskaposta.cz/-/ceska-posta-zdarma-prepravuje-rousky). 
+**Aktuálně:** Infocentrum bude otevřené v sobotu od 9.30 do 18.00 a v neděli od 13.00 do 18.00.
 
 Pokud nejste z Brna, primárně prosím šijte pro své sousedy a sousedky, pro vlastní obec a okolí, pro oblastní nemocnice, domovy seniorů a oblastní sociální služby. Nezapomínejte roušky vyvařit a přežehlit a zabalit, než je předáte.
 
@@ -60,6 +60,6 @@ ________________________________________________________________________________
 
 **Kontakt:** [sijemerousky@gmail.com](mailto:sijemerousky@gmail.com)
 
-Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425
+Každý den od 8 do 18 hodin funguje infolinka na čísle 542 123 425. **POZOR: Infocentrum bude otevřené v sobotu od 9.30 do 18.00 a v neděli od 13.00 do 18.00.**
 
 
